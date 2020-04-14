@@ -1,7 +1,7 @@
 # "k"need
 a running list of what (NEEDS) to be done
 
-to be treated with the respect I have fought so hard to earn
+to be treated with respect
 
 to not be made to participate in activities to which i am diametrically opposed
 
@@ -18,3 +18,5 @@ those of you whom are of the understanding that your machinations have somehow g
 
 hopefully people have been paying attention to what others are saying/doing, because they've been acting with real
  CONVICTION // FAITH // BELIEF \\ MORALS \\ REASON
+
+ OPtimus is tired of megatron's machinations (if this is ignored much longer, I do not KNO what the consequences will be)
