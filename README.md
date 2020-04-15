@@ -20,3 +20,11 @@ hopefully people have been paying attention to what others are saying/doing, bec
  CONVICTION // FAITH // BELIEF \\ MORALS \\ REASON
 
  OPtimus is tired of megatron's machinations (if this is ignored much longer, I do not KNO what the consequences will be)
+
+
+IN
+So no matter how hard you wish away the truth, hoping, praying, believing in anything other than mII, we SHAll sEE.
+
+The amount of money I received comes KNOWhere CLose to making mII WHole. If I don't get what I have requested, the enemy will be more and more visible.... because the reality is that C Level/rs is the reason.
+
+The science was just to remind the wannabe know it alls (they don't HAHAhahaHAHA)
