@@ -28,3 +28,7 @@ So no matter how hard you wish away the truth, hoping, praying, believing in any
 The amount of money I received comes KNOWhere CLose to making mII WHole. If I don't get what I have requested, the enemy will be more and more visible.... because the reality is that C Level/rs is the reason.
 
 The science was just to remind the wannabe know it alls (they don't HAHAhahaHAHA)
+
+
+
+They said no MAN is an island, and THEY were wrong ABout mII
